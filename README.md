@@ -3,4 +3,3 @@ Disfruto pasar mi tiempo libre jugando videojuegos, leyendo, dibujando y pasando
 
 **Me encantan los mariscos**
 
-- ⚡ Fun fact: Aprendí inglés _fingiendo_ que lo entendía (en videos/música) y jugando videojuegos
